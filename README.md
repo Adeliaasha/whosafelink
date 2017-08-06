@@ -1,0 +1,2 @@
+# whosafelink
+semoga sukses
